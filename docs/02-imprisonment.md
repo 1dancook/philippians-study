@@ -1,0 +1,10 @@
+# 2 - Paul's Imprisonment (1:12-26)
+
+## Main Passage
+
+!!! Scripture "Philippians 1:12-26 ESV"
+    **12** I want you to know, brothers, that what has happened to me has really served to advance the gospel, **13** so that it has become known throughout the whole imperial guard and to all the rest that my imprisonment is for Christ. **14** And most of the brothers, having become confident in the Lord by my imprisonment, are much more bold to speak the word without fear.  
+
+    **15** Some indeed preach Christ from envy and rivalry, but others from good will. **16** The latter do it out of love, knowing that I am put here for the defense of the gospel. **17** The former proclaim Christ out of selfish ambition, not sincerely but thinking to afflict me in my imprisonment. **18** What then? Only that in every way, whether in pretense or in truth, Christ is proclaimed, and in that I rejoice.  
+
+    Yes, and I will rejoice, **19** for I know that through your prayers and the help of the Spirit of Jesus Christ this will turn out for my deliverance, **20** as it is my eager expectation and hope that I will not be at all ashamed, but that with full courage now as always Christ will be honored in my body, whether by life or by death. **21** For to me to live is Christ, and to die is gain. **22** If I am to live in the flesh, that means fruitful labor for me. Yet which I shall choose I cannot tell. **23** I am hard pressed between the two. My desire is to depart and be with Christ, for that is far better. **24** But to remain in the flesh is more necessary on your account. **25** Convinced of this, I know that I will remain and continue with you all, for your progress and joy in the faith, **26** so that in me you may have ample cause to glory in Christ Jesus, because of my coming to you again.  
