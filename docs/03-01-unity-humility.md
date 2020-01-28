@@ -23,6 +23,8 @@
 1. It is clear that beleivers will suffer some persecution (1:29), but how can believers collectively mitigate the affects of this?
     - `standing firm in one spirit` - have unity
     - `with one mind striving side by side for the faith of the gospel` - work together in unity so that people who believe will believe more and people who don't believe will believe
+    - having the same purpose
+    - standing together we are our strongest. When we are alone we are helpless.
     - doing so gives us confidence before our oppononets
     - if we do stand strong together, persecution has no affect
     - when we stand strong together it is evidence of our own salvation (1:28)
@@ -46,6 +48,7 @@
     - 2:2 `full accord` or *full agreement*
     - 2:2 `one mind`
     - Believers can have this by having the same mind as Christ. Look at 2:3-4 and 2:6~
+    - When Christians suffer under persecution it will bring about more unity
 
 6. Can you give some examples of what this kind of unity and humility might look like in every day life? What about examples of the opposite in the church? What about your own life?
 
