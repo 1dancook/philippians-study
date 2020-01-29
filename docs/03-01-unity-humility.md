@@ -47,6 +47,7 @@
     - 2:2 `same love`
     - 2:2 `full accord` or *full agreement*
     - 2:2 `one mind`
+    - How? Look at 2:3-4
     - Believers can have this by having the same mind as Christ. Look at 2:3-4 and 2:6~
     - When Christians suffer under persecution it will bring about more unity
 
