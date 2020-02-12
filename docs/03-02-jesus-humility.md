@@ -8,7 +8,7 @@
 
 This is a continuation of the previous lesson. In the previous lesson we talked about believers having unity in the face of persecution. That unity would mitigate the effects of persecution. It's also important for Christians to be unified to fight internal issues as well (like selfish living). This passage continues by bringing deep definition to the concept of humility by showing the example of Christ.
 
-### Observations and Notes
+## Observations and Notes
 - it is possible that 2:6-11 is an early Christian hymn but it cannot be proven
 - Judaism highly valued obedience to the point of death in stories about its martyrs. 
 - Crucifixion was incredibly degreading (the most) form of execution. It was only for non-Roman criminals of the lowest status. 
@@ -17,7 +17,7 @@ This is a continuation of the previous lesson. In the previous lesson we talked 
 - For 2:10-11 see also Isaiah 45:23
 - this passage is often known as the kenosis passage. Kenosis means *"the renunciation of the divine nature, at least in part, by Christ in the Incarnation."*
 
-### Questions and Application
+## Questions and Application
 
 1. What does this tell us about Jesus? 
     - It shows this progression of humility
